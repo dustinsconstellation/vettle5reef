@@ -1,5 +1,4 @@
-### svttle990
-hi i go by  james and i rlly love sebastian vettel ... mm yes sv5 i like f1 , hannibal , spn , peace maker , etc 
-wip bio rn cuz im lazy help 
+### stamps i find cool yay ok 
 
- hello why wont this show up on my profile SOMEONE HELP ME
+<p align="center">
+<img src=https://files.catbox.moe/jaockp.png>  <img src=https://files.catbox.moe/s38w1k.png> <img src=https://files.catbox.moe/9whhzc.gif> <img src=https://64.media.tumblr.com/13e443764f8590fc5d9c67ca1e7f79aa/92a8ed374314049b-42/s250x400/66a71d2bc96561e2ad5d26da4126bd224c66ca16.jpg> <img src=https://64.media.tumblr.com/bf3fd09355d47fd4defc4424c2201f2c/1fa4cd48d5a04dea-18/s100x200/c9f41e85e2d0f5b4a611ecc42a18762e3f6eff0f.pnj> <img src=https://files.catbox.moe/5dks43.gif> <img src=https://64.media.tumblr.com/a188df5c8646719d930518241877f180/dde60c1e9dfffeeb-67/s100x200/a8d8cf4359165dd10bf36255838af7a87e47d15d.jpg> <img src=https://files.catbox.moe/mpen45.png> <img src=https://64.media.tumblr.com/3a4967660c7a917fd9e3b0d891fba58f/50f99216662f3f44-1d/s100x200/77a1a0a75ab26b5b266bc6c3be4c58ad342ddc25.gifv> <img src=https://supplies.ju.mp/assets/images/gallery01/6a4d2428.gif?v=9163b103> <img src=https://files.catbox.moe/tdunt5.png> <img src=https://files.catbox.moe/q2qpyy.gif>
